@@ -1,0 +1,1 @@
+# yasukado.github.io
